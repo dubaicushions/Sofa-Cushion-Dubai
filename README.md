@@ -9,7 +9,7 @@
 
     <h1>The Ultimate Guide to Choosing Sofa Cushions: Style, Comfort, and Functionality</h1>
 
-    <p>When it comes to decorating your living room, <a href="https://dubaicushions.com/sofa-cushions"> Sofa Cushions </a> are often overlooked, yet they play a crucial role in elevating both the style and comfort of your space. A well-chosen set of cushions can transform a plain sofa into the centerpiece of your room, adding personality, warmth, and a touch of luxury. Whether you're updating your current setup or starting from scratch, here’s everything you need to know about choosing the perfect sofa cushions.</p>
+    <p>When it comes to decorating your living room, <a href="https://dubaicushions.com/sofa-cushions/"> Sofa Cushions </a> are often overlooked, yet they play a crucial role in elevating both the style and comfort of your space. A well-chosen set of cushions can transform a plain sofa into the centerpiece of your room, adding personality, warmth, and a touch of luxury. Whether you're updating your current setup or starting from scratch, here’s everything you need to know about choosing the perfect sofa cushions.</p>
 
     <h2>1. Understanding the Basics: Size and Shape</h2>
     <ul>
